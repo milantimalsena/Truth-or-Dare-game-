@@ -5,7 +5,7 @@ Play solo or with friends — laugh, cringe, and maybe even regret your choices 
 
 ---
 
-## 🚀 Play Now and have fun
+🚀 Play Now and have fun
 
 
 
